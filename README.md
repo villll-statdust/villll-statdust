@@ -1,10 +1,6 @@
-# ∘⁠˚⁠˳⁠°
-well this will be certainly be interesting⁠✧
 
-![Alt Text](https://media3.giphy.com/media/v1.Y2lkPTZjMDliOTUyenIydW14YnZqZm1senAzb2YxZ2dpNWp1ZGZ4dnhlaGRlMGhudzc1OCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/OpMOiOV3k6NpMBuu2N/giphy.gif)
+![Alt Text](https://media3.giphpy.com/v1.Y2lkPTZjMDliOTUyenIydW14YnZqZm1senAzb2YxZ2dpNWp1ZGZ4dnhlaGRlMGhudzc1OCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/OpMOiOV3k6NpMBuu2N/giphy.gif)
 
-
-Here is your updated bio with the "One tiny request..." section tucked neatly inside an expandable drawer using standard GitHub-compatible HTML (<details> and <summary>):
 # ✨ Ah, welcome~
 Quite a surprise to see someone wander into my little corner of the internet! I'm genuinely glad you stopped by.
 ### ✦ Who am I?
