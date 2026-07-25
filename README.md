@@ -1,5 +1,6 @@
 
 ![ HIII ](https://media3.giphy.com/media/v1.Y2lkPTZjMDliOTUyenIydW14YnZqZm1senAzb2YxZ2dpNWp1ZGZ4dnhlaGRlMGhudzc1OCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/OpMOiOV3k6NpMBuu2N/giphy.gif)
+<br><br><br>
 
 # ✨ Ah, welcome~
 Quite a surprise to see someone wander into my little corner of the internet! I'm genuinely glad you stopped by.
@@ -24,6 +25,4 @@ in Pony Town! (´-` )
 Anyway, feel free to take a look around. Try not to get too lost~ ( * - * )
 
 <br><br><br>
-<br><br><br>
-
 ![ laught cyaaa! ](https://media4.giphy.com/media/v1.Y2lkPTZjMDliOTUya3VjbzZ0anlhdTQ1c21hYzE4NnN4aml4YjhmemV3cXhwczY3NWl1dyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/GpSELI5HJt5FbBUFPa/giphy.gif)
