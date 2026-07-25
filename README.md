@@ -1,5 +1,5 @@
 
-![Alt Text](https://media3.giphpy.com/v1.Y2lkPTZjMDliOTUyenIydW14YnZqZm1senAzb2YxZ2dpNWp1ZGZ4dnhlaGRlMGhudzc1OCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/OpMOiOV3k6NpMBuu2N/giphy.gif)
+![ HIII ](https://media3.giphy.com/media/v1.Y2lkPTZjMDliOTUyenIydW14YnZqZm1senAzb2YxZ2dpNWp1ZGZ4dnhlaGRlMGhudzc1OCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/OpMOiOV3k6NpMBuu2N/giphy.gif)
 
 # ✨ Ah, welcome~
 Quite a surprise to see someone wander into my little corner of the internet! I'm genuinely glad you stopped by.
@@ -9,7 +9,10 @@ I’m just floating through the digital void, hanging out, and spending way too 
  * Bungou Stray Dogs (obviously~)
  * Persona 5
  * AH (Roblox)
-You can usually find me wandering around the AH, BSD, and Genshin areas in Pony Town! (´-` )
+
+You can usually find me wandering around the AH, BSD, and Genshin areas 
+in Pony Town! (´-` )
+
 <details>
 <summary><b>One tiny request... (click to open)</b></summary>
 
@@ -19,3 +22,5 @@ You can usually find me wandering around the AH, BSD, and Genshin areas in Pony 
 > 
 </details>
 Anyway, feel free to take a look around. Try not to get too lost~ ( * - * )
+
+![ laught cyaaa! ](https://media4.giphy.com/media/v1.Y2lkPTZjMDliOTUya3VjbzZ0anlhdTQ1c21hYzE4NnN4aml4YjhmemV3cXhwczY3NWl1dyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/GpSELI5HJt5FbBUFPa/giphy.gif)
